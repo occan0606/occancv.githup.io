@@ -1,4 +1,4 @@
-<!DOCTYPE html>
+
 <!-- saved from url=(0056)https://mycar.temya.app/6d7f34d0cd7621a898260aed319edd3e -->
 <html><head><meta http-equiv="Content-Type" content="text/html; charset=UTF-8">
     <title>OĞUZHAN ÖZTÜRK ARAÇ KARTVİZİTİi</title>
